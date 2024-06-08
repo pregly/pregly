@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @pregly
+- 👀 I’m interested in ...hackinggg
+- 🌱 I’m currently learning ...
